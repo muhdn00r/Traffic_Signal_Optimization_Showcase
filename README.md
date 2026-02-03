@@ -5,7 +5,11 @@
 
 ## 🎥 Project Demo
 
-https://github.com/user-attachments/assets/3ff0cc73-0830-4312-b06b-cbf427596870
+
+
+https://github.com/user-attachments/assets/aedf5767-010f-4c88-81ae-bd230a6e1230
+
+
 
 ---
 
